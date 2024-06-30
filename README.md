@@ -16,3 +16,9 @@ Excel Tahminleri: https://t.me/exceliddaa
 Her Gün 2 Oran: https://t.me/+g8S3xHGqLzA4MDE8
 
 Yapay Zeka Bahis Tahminleri: https://t.me/inplayRadarBOTLive
+
+Telegram Bahis Grubu: https://t.me/nesine_matrix
+
+İddaa Sohbet Grubu: https://t.me/sohbet_iddaa
+
+Telegram Bahis Grupları: https://t.me/bahis_gruplari
