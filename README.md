@@ -22,3 +22,5 @@ Telegram Bahis Grubu: https://t.me/nesine_matrix
 İddaa Sohbet Grubu: https://t.me/sohbet_iddaa
 
 Telegram Bahis Grupları: https://t.me/bahis_gruplari
+
+Bu sayfada işe yarar telegram gruplarına yer verdik. İçeriğimizi beğendiyseniz beğenerek bize destek olabilirsiniz.
